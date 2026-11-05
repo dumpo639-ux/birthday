@@ -1,0 +1,1 @@
+Reserved for future editable chapter data. No private images are included.
